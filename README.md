@@ -1,1 +1,1 @@
-[Click here for Google verification](https://github.com/naokikimura/naokikimura.github.io/blob/master/google6e2a68be483d534a.html)
+<meta name="google-site-verification" content="LvnhPrqi_iFwAuOibbzfF1iRICSu_BRxlazQHoMedoM" />
